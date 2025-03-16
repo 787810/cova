@@ -1,1 +1,1 @@
-!{[68747470733a2f2f6465706c6f792e776f726b6572732e636c6f7564666c6172652e636f6d2f627574746f6e](https://github.com/user-attachments/assets/8541ae40-2270-46eb-a756-622033df7518)(https://deploy.workers.cloudflare.com/?url=https://github.com/787810/cova)}
+
