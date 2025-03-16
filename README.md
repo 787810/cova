@@ -1,0 +1,2 @@
+- 👋 Hi, selamat datang
+- punya kerjaan otak atik copas sana sini repo orang wkwkwkwk
